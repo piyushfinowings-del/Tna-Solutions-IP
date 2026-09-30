@@ -1,6 +1,6 @@
 # TNA Solutions IPO: Price Band, GMP, Dates, Lot Size and Allotment
 
-The **TNA Solutions IPO** is a fresh SME issue of ₹37.86 crore that opens for bidding on **30 September 2026**. The company plans to list its shares on the **BSE SME platform**.
+The **[TNA Solutions IPO](https://www.finowings.com/IPO/tna-solutions-ipo)** is a fresh SME issue of ₹37.86 crore that opens for bidding on **30 September 2026**. The company plans to list its shares on the **BSE SME platform**.
 
 For complete IPO details, visit:  
 https://www.finowings.com/IPO/tna-solutions-ipo
